@@ -4,10 +4,10 @@
 
 
 
-︶◟ ⺀　 i reandomly c+h cus im so lonelyyyyyyy..,  ⠀ᴗᴗ　⠀՞ 　💔 
+                ..︶◟ ⺀　 i reandomly c+h cus im so lonelyyyyyyy..,  ⠀ᴗᴗ　⠀՞ 　💔 
 
-BMF>?????????!!!
+                                        BMF>?????????!!!
 
-𓏵 Roblox area ˚idklol
+                                              𓏵 Roblox area ˚idklol
 
-pim pimling is me also i go by any pronouns hehe
+                                                        pim pimling is me also i go by any pronouns hehe
