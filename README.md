@@ -1,6 +1,7 @@
 ## hai !!!!!!!!!!11
 
-<img src="https://i.pinimg.com/736x/d6/50/15/d65015603c267661bad575e2b5667c51.jpg" alt="This may contain: a painting of a cat standing on top of pink roses and green leaves with purple flowers in the background"/>
+<img width="221" height="294" alt="image" src="https://github.com/user-attachments/assets/09d9654d-9539-4c35-a506-ab0f537ea0ef" />
+
 
             
 
