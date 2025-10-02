@@ -1,5 +1,5 @@
 ## hai !!!!!!!!!!11
-<img src="https://i.pinimg.com/736x/d6/50/15/d65015603c267661bad575e2b5667c51.jpg" alt="This may contain: a painting of a cat standing on top of pink roses and green leaves with purple flowers in the background"/>
+https://images-ext-1.discordapp.net/external/S7B8ee9y2hLZf8SS8B_nn_frmH0NJJxilJMy5qa9OPY/https/media.tenor.com/qcepMO4raIEAAAPo/ouch-pugsley-addams.mp4
 
                 ..︶◟ ⺀　 i reandomly c+h cus im so lonelyyyyyyy..,  ⠀ᴗᴗ　⠀՞ 　💔 
 
