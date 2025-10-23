@@ -1,7 +1,8 @@
 ## hai !!!!!!!!!!11
-<img width="661" height="778" alt="image" src="https://github.com/user-attachments/assets/49b470ef-235d-46ac-a5fb-4405a4a43ace" />
+<img width="720" height="904" alt="image" src="https://github.com/user-attachments/assets/cd781cb5-3afb-4436-b559-d795ceb9e0f2" />
 
 
+goo goo gaagaa
 
                 hi read my strawpage or something
 wire face hello
