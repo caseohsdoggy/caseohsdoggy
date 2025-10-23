@@ -1,5 +1,6 @@
 ## hai !!!!!!!!!!11
-<img width="674" height="554" alt="image" src="https://github.com/user-attachments/assets/95ff966a-d638-4da9-a3d5-0104ed584def" />
+<img width="663" height="558" alt="image" src="https://github.com/user-attachments/assets/e226e23c-eb69-4cb6-b812-52fccbb4b6b1" />
+
 
 
 
