@@ -4,8 +4,4 @@
 
 
                 hi read my strawpage or something
-
-
-
-                
-              ![Profile Views](https://komarev.com/ghpvc/?caseohsdoggie)
+wire face hello
