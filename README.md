@@ -2,7 +2,8 @@
 
 i like wire face.....hmmm
 
-<img width="663" height="558" alt="image" src="https://github.com/user-attachments/assets/ced9fd04-c93b-4973-9e22-65f56420c252" />
+<img src="https://i.pinimg.com/originals/1f/be/54/1fbe54d2f755d5de5735a68fb293e748.gif" alt="This may contain: a white dog laying on top of dry grass"/><img width="690" height="388" alt="image" src="https://github.com/user-attachments/assets/47de6ca7-b4ab-4606-b451-57e2fffe7b0d" />
+
 
 
 
