@@ -1,13 +1,14 @@
 ## hi !!
 
-i like wire face.....hmmm
+hi um hi hi read my strawpage and i loveeee modo from the hit movie goat ok so my name is pim i love my dog and dni if you copy my skins im gonna kile you if you do that ok so my dogs name is harley unmmm ok so like if your a proordarkshipper dni or if ur a zoo pedo map ur weird get off my page ho ok PLEASE C+H plssPPLSSS ok yayyy o=and if u do can we be friends i swear im really cool and also im 14 so 18+ dni besides lena cus shes almost 18...gulp i love my friends byyeeeee ok draw on my straw
 
-<img src="https://i.pinimg.com/originals/1f/be/54/1fbe54d2f755d5de5735a68fb293e748.gif" alt="This may contain: a white dog laying on top of dry grass"/><img width="690" height="388" alt="image" src="https://github.com/user-attachments/assets/47de6ca7-b4ab-4606-b451-57e2fffe7b0d" />
+![_](https://github.com/user-attachments/assets/cf70b3f9-1110-47e1-89b1-444793af0ce8)
+
 
 
 
 
 goo goo gaagaa
 
-                hi read my strawpage or something
-wire face hello
+                
+dni modo doubles im greedy sowwy
