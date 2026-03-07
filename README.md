@@ -19,5 +19,7 @@ GUYS I KNOW HOW TO SHOW MY SPOTIFY GUYS OH MY GOD [![spotify-github-profile](htt
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=caseohsdoggie)
 
+GUYS GUYS ITS LOW BECAUSE I JUST PUT IT IN PLS HAVE MERCY GUYS NOOO DONT EXECUTE ME NO
+
 
 
