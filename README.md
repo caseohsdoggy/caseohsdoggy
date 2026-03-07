@@ -6,7 +6,7 @@ dni modo doubles im greedy sowwy
 
 
 
-    [![Typing SVG](https://readme-typing-svg.demolab.com/?lines=I+LOVEEEE+Modo+Olachenko)]  
+[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=I+LOVEEEE+Modo+Olachenko)]  
 
 
 goo goo gaagaa
