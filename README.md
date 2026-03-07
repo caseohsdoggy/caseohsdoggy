@@ -10,4 +10,4 @@ dni modo doubles im greedy sowwy
 
 goo goo gaagaa
 
-              
+GUYS I KNOW HOW TO SHOW MY SPOTIFY GUYS OH MY GOD [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ncgrg7oyur62bfl7zaxfsnk6oi&cover_image=true&theme=default&show_offline=true&background_color=0ecd8d&interchange=true&profanity=false&bar_color=bc5b1a&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
