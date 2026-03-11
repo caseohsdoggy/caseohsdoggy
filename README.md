@@ -11,15 +11,13 @@ dni modo doubles im greedy sowwy
 ![Typing SVG](https://readme-typing-svg.demolab.com/?lines=I+LOVEEEE+Modo+Olachenko) 
 
 
-goo goo gaagaa
-
-GUYS I KNOW HOW TO SHOW MY SPOTIFY GUYS OH MY GOD [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ncgrg7oyur62bfl7zaxfsnk6oi&cover_image=true&theme=default&show_offline=true&background_color=0ecd8d&interchange=true&profanity=false&bar_color=bc5b1a&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) 
+ [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ncgrg7oyur62bfl7zaxfsnk6oi&cover_image=true&theme=default&show_offline=true&background_color=0ecd8d&interchange=true&profanity=false&bar_color=bc5b1a&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) 
 
 
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=caseohsdoggie)
 
-GUYS GUYS ITS LOW BECAUSE I JUST PUT IT IN PLS HAVE MERCY GUYS NOOO DONT EXECUTE ME NO
+
 
 
 
