@@ -13,12 +13,10 @@ dni modo doubles im greedy sowwy
 
 
 
-
-<div align="center">
-  ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=caseohsdoggie)
-</div>
+![](https://komarev.com/ghpvc/?username=caseohsdoggie&label=Olachenko's&color=green)
 
 
+![](https://komarev.com/ghpvc/?username=caseohsdoggy&style=pixel)
 
 
 <img src="https://media.discordapp.net/attachments/1374134682261913731/1483304853567438899/Untitled97_20260316222313.png?ex=69ba1acb&amp;is=69b8c94b&amp;hm=dae5f2737ad2c06127084fcd4a2ccbbb8f1e1b95d6954325bb19ff28785c83d7&amp;=&amp;format=webp&amp;quality=lossless&amp;width=1184&amp;height=229" alt="Image"/>
