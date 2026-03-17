@@ -14,7 +14,10 @@ dni modo doubles im greedy sowwy
 
 
 
-   ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=caseohsdoggie)
+<div align="center">
+  ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=caseohsdoggie)
+</div>
+
 
 
 
