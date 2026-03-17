@@ -12,8 +12,6 @@ dni modo doubles im greedy sowwy
 ![Typing SVG](https://readme-typing-svg.demolab.com/?lines=I+LOVEEEE+Modo+Olachenko) 
 
 
- [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ncgrg7oyur62bfl7zaxfsnk6oi&cover_image=true&theme=default&show_offline=true&background_color=0ecd8d&interchange=true&profanity=false&bar_color=bc5b1a&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) 
-
 
 
    ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=caseohsdoggie)
@@ -23,3 +21,8 @@ dni modo doubles im greedy sowwy
 <img src="https://media.discordapp.net/attachments/1374134682261913731/1483304853567438899/Untitled97_20260316222313.png?ex=69ba1acb&amp;is=69b8c94b&amp;hm=dae5f2737ad2c06127084fcd4a2ccbbb8f1e1b95d6954325bb19ff28785c83d7&amp;=&amp;format=webp&amp;quality=lossless&amp;width=1184&amp;height=229" alt="Image"/>
 
 
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ncgrg7oyur62bfl7zaxfsnk6oi&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false&mode=dark">
+  </a>
+</p>
