@@ -1,6 +1,7 @@
 ## hi !!
 
-<img src="https://media.discordapp.net/attachments/1374134682261913731/1483304853194276874/Untitled97_20260316222344.png?ex=69ba1acb&amp;is=69b8c94b&amp;hm=d158956fc00f3d11b40750bde86503c0e063b96c8061cb68fff4f3abfe4541ae&amp;=&amp;format=webp&amp;quality=lossless&amp;width=1184&amp;height=229"/>
+
+<img width="1120" height="217" alt="image" src="https://github.com/user-attachments/assets/54aec86b-8ab7-4bee-9446-dd25b3f806a5" />
 
 
 
@@ -19,7 +20,8 @@ dni modo doubles im greedy sowwy
 ![](https://komarev.com/ghpvc/?username=caseohsdoggy&style=pixel)
 
 
-<img src="https://media.discordapp.net/attachments/1374134682261913731/1483304853567438899/Untitled97_20260316222313.png?ex=69ba1acb&amp;is=69b8c94b&amp;hm=dae5f2737ad2c06127084fcd4a2ccbbb8f1e1b95d6954325bb19ff28785c83d7&amp;=&amp;format=webp&amp;quality=lossless&amp;width=1184&amp;height=229" alt="Image"/>
+<img width="1120" height="217" alt="image" src="https://github.com/user-attachments/assets/eb059e2c-4471-4eae-a5a3-bdf1cc32891a" />
+
 
 
 <p align="center">
