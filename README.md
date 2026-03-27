@@ -6,7 +6,8 @@
 
 hi um hi hi read my strawpage and i loveeee modo from the hit movie goat ok so my name is pim i love my dog and dni if you copy my skins im gonna kile you if you do that ok so my dogs name is harley unmmm ok so like if your a proordarkshipper dni or if ur a zoo pedo map ur weird get off my page ho ok PLEASE C+H plssPPLSSS ok yayyy o=and if u do can we be friends i swear im really cool and also im 14 so 18+ dni besides lena cus shes almost 18...gulp i love my friends byyeeeee ok draw on my straw
 dni modo doubles im greedy sowwy
-    <img   src="https://media.discordapp.net/attachments/1374134682261913731/1483327013380034591/Untitled98_20260316235125.png?ex=69ba2f6e&amp;is=69b8ddee&amp;hm=c751c68fb44d96531e1456f971486b051eae1cd5a1c85dce11e230fa8b4d632b&amp;=&amp;format=webp&amp;quality=lossless&amp;width=557&amp;height=557" alt="Image"/>
+   <img width="724" height="724" alt="image" src="https://github.com/user-attachments/assets/2c29c0a7-e840-4f07-93a2-34f805f00c83" />
+
 
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Lemon+Milk&pause=1000&color=47D198&center=true&width=435&lines=i+hope+you+know+you+are+loved;i+hope+things+get+simpler+for+you" alt="Typing SVG" /></a>
