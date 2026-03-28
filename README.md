@@ -14,7 +14,7 @@ dni modo doubles im greedy sowwy
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Lemon+Milk&pause=1000&color=47D198&center=true&width=435&lines=i+hope+you+know+you+are+loved;i+hope+things+get+simpler+for+you" alt="Typing SVG" /></a>
 
 
-![](https://komarev.com/ghpvc/?username=caseohsdoggie&label=Olachenko's&color=green)
+![](https://komarev.com/ghpvc/?username=caseohsdoggy&label=Olachenko's&color=green)
 
 
 ![](https://komarev.com/ghpvc/?username=caseohsdoggy&style=pixel)
