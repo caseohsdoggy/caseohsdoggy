@@ -1,7 +1,9 @@
 ## hi !!
 
 
-<img width="1120" height="217" alt="image" src="https://github.com/user-attachments/assets/54aec86b-8ab7-4bee-9446-dd25b3f806a5" />
+<img width="1120" height="217" alt="image" src="https://github.com/user-attachments/assets/558d1a8c-5429-452b-862a-f2c4acf82f44" />
+
+
 
 
 
@@ -27,7 +29,8 @@ m/w dani!!
 ![](https://komarev.com/ghpvc/?username=caseohsdoggy&style=pixel)
 
 
-<img width="1120" height="217" alt="image" src="https://github.com/user-attachments/assets/eb059e2c-4471-4eae-a5a3-bdf1cc32891a" />
+<img width="1120" height="217" alt="image" src="https://github.com/user-attachments/assets/1d80d2bb-dfa3-47a8-869e-d2f2755f19d4" />
+
 
 
 
