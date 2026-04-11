@@ -7,10 +7,10 @@
 
 
 
-hi um hi hi read my strawpage and i loveeee modo from the hit movie goat ok so my name is pim i love my dog and dni if you copy my skins im gonna kile you if you do that ok so my dogs name is harley unmmm ok so like if your a proordarkshipper dni or if ur a zoo pedo map ur weird get off my page ho ok PLEASE C+H plssPPLSSS ok yayyy o=and if u do can we be friends i swear im really cool and also im 14 so 21+ dni i love my friends byyeeeee ok draw on my straw
-dni modo doubles 
+
  <p align="center">
-   <img width="616" height="430" alt="image" src="https://github.com/user-attachments/assets/7e3f9259-6e0b-46ed-9057-0d6763ea95e7" />
+   <img width="597" height="724" alt="image" src="https://github.com/user-attachments/assets/1b9156c5-2476-4306-9998-35c02af6bc7d" />
+
 
 
  </a>
