@@ -12,9 +12,13 @@
    <img width="597" height="724" alt="image" src="https://github.com/user-attachments/assets/1b9156c5-2476-4306-9998-35c02af6bc7d" />
 
 
-
  </a>
 </p>
+
+$${\color{#292925} ⬇︎ \space straw \space ! \space ‎♡‧₊˚}$$
+
+
+[![ssQHzwX](https://github.com/user-attachments/assets/b8b776e8-3925-46f4-9e5d-a87cbed0460f))](https://maxdesignproheh.straw.page)
 
 
 <p align="center">
