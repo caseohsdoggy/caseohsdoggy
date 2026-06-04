@@ -22,7 +22,7 @@ $${\color{#292925} ⬇︎ \space straw \space ! \space ‎♡‧₊˚}$$
 
 
 <p align="center">
-m/w dani!!
+
  </a>
 </p>
 
