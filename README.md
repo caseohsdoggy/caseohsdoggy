@@ -29,7 +29,7 @@
 </p>
 
 
-![](https://komarev.com/ghpvc/?username=caseohsdoggy&label=friends&color=green)
+![](https://komarev.com/ghpvc/?username=caseohsdoggy&label=friends&color=3b3c36)
 
 
 ![](https://komarev.com/ghpvc/?username=caseohsdoggy&style=pixel)
