@@ -15,10 +15,12 @@
  </a>
 </p>
 
-$${\color{#292925} ⬇︎ \space straw \space ! \space ‎♡‧₊˚}$$
+<p align="center"> $${\color{#292925} ⬇︎ \space straw \space ! \space ‎♡‧₊˚}$$
 
 
-[![ssQHzwX](https://github.com/user-attachments/assets/b8b776e8-3925-46f4-9e5d-a87cbed0460f))](https://maxdesignproheh.straw.page)
+<p align="center"> 
+ 
+ [![ssQHzwX](https://github.com/user-attachments/assets/b8b776e8-3925-46f4-9e5d-a87cbed0460f))](https://maxdesignproheh.straw.page)
 
 
 <p align="center">
